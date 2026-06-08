@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate - on nothing, dot ask about it
 - 📫 How to reach me - do not reach me pls
 - 😄 Pronouns: watever
-- ⚡ Fun fact: i am smart and brazilian.
+- ⚡ Fun fact: i am brazilian.
 FOR HADES SAKE LEVE ME ALONE, thanks
 <!---
 PolyanaGaio/PolyanaGaio is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
